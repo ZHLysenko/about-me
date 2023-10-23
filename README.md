@@ -7,5 +7,6 @@
 * Люблю рептилий
 * На работе меня используют как убийцу жуков
 * Сижу на успокоительных уже пол года, не помогает
+* У меня есть два эублефара (_улыбающийся геккон_) 
 
-![злой котик](https://kartinkof.club/uploads/posts/2023-05/1683459593_kartinkof-club-p-kartinki-zloi-kotik-18.jpg)
+![эублефар](https://pofoto.club/uploads/posts/2022-08/1661151408_29-pofoto-club-p-gekkon-eublefar-38.jpg)
